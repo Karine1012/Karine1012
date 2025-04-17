@@ -24,5 +24,5 @@ Estou cursando o Técnico de Desenvolvimento de Sistemas no SENAI, onde tenho ap
 
 ## 🎯 Expectativas para o Futuro
 
-[Exemplo]Com o término do curso, espero conseguir um estágio como desenvolvedor para aplicar o que aprendi em projetos reais. Meu objetivo é me tornar um...
+Com o término do curso, eu apenas vou tirar meu certificado, mas não pretendo continuar com isso. Meu objetivo é fazer biologia, para conseguir meu emprego dos sonhos (Perita Criminal).
 
